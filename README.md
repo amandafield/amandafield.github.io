@@ -8,7 +8,7 @@ We want to extend a heartfelt thank you to all of our students, supporters, and 
 
 ## Continuing the Practice
 
-Although our physical studio has closed, you can still practice with Amanda Field through private instruction (Amanda Field Wellness)[https://amandafieldyoga.com], at Mala Market in Montrose for Self Care Sundays, or at occasoinal events. Follow @TheYogaTriangle for updates
+Although our physical studio has closed, you can still practice with Amanda Field through private instruction [Amanda Field Wellness](https://amandafieldyoga.com), at Mala Market in Montrose for Self Care Sundays, or at occasoinal events. Follow @TheYogaTriangle for updates
 
 ## Contact
 
